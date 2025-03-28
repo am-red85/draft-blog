@@ -5,8 +5,6 @@ author: Annemari
 ---
 
 ## I found a cheat sheet!
-I'll link it here
-
-[here](h[ttps://www.example.com](https://www.markdownguide.org/cheat-sheet/))
+I'll link it [here](h[ttps://www.example.com](https://www.markdownguide.org/cheat-sheet/))
 
 Now I can start *fancying up* my posts >:) 
