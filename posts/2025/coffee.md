@@ -4,7 +4,7 @@ date: 2025-03-28
 author: Annemari
 ---
 
-SO, I might be slightly coffee-addicted. But! I actually don't really drink it to wake up. Sure, I drink it every morning as a part of waking up, but whenever I drink it later in the day, I don't feel like it affects me that much. So maybe I'm coffee-addicted but not only for the taste?
+SO, I might be slightly coffee-addicted. But! I actually don't really drink it to wake up. Sure, I drink it every morning as a part of waking up, but whenever I drink it later in the day, I don't feel like it affects me that much. So maybe I'm coffee-addicted but only for the taste?
 
 Okay, it might just be because my body is so used to drinking (a lot of) coffee almost every single day, and has gotten used to the caffeine. But I still remember when I first started drinking coffee years ago, that I never felt like it affected me that much, save for a few occations when I may have started vibrating slightly. My point is, that I mostly drink it because I love it, mostly with some milk in. Sometimes I do worry that it might be bad for me, but if I worry a lot then I ususally take a small break for a few days, or try to not drink more than 1-2 cups a day. 
 
